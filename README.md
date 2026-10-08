@@ -1,0 +1,1 @@
+# T-cnicas-Caixa-Preta-Parti-o-de-Equival-ncia-e-Valor-Limite
